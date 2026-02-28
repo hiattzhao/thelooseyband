@@ -1,2 +1,2 @@
 # thelooseyband
-This is the website of The Loosey Band. A kickass punk band based in New York City!
+This is the website of The Loosey Band. A kickass rock & roll band based in New York City!
